@@ -1,1 +1,0 @@
-\work\Channel\logo\Wallpapers\
